@@ -57,4 +57,11 @@ You're married, to me
 
 Us. I will always be here with you no matter what, and I promise to love and care for you for eternity, my love. I love you so much.
 
+![IMG_3316](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/a36fbc5c-d63f-4005-a54d-31ed86e45b43)
+
+![IMG_3315](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/1f5b7357-510b-40d4-a66a-47a1fb02e035)
+
+![IMG_3314](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/e13b1e24-97ef-42c4-8e0f-86f0fb6dddcd)
+
+
 
