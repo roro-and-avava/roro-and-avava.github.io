@@ -1,5 +1,6 @@
 # Happy Birthday Ava!
-![IMG_3178 2](https://github.com/rodinopps/rodinopps.github.io/assets/148067607/9720557d-6d99-4df3-9f63-24437a27a0c5)
+![IMG_3178 3](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/2b9a23bf-d530-4015-b1c9-8d42f14c7f57)
+
 
 I love you so much, Ava, and you mean everything to me. Happy Birthday to the most perfect person, and I am forever grateful to be with you. I want you to know how much you mean to me on this special day. Our love has brought boundless joy and happiness into my life, and I love every moment we have shared. You have a light that brightens my darkest days.
 
@@ -11,51 +12,51 @@ Our love grows stronger with each passing day. You are my girlfriend, best frien
 
 
 
-      I feel soon
+                        I feel soon
 
-        I will sink
+                          I will sink
 
-          Into you
+                            Into you
 
-            What do you think?
+                              What do you think?
 
-              'Cause there's still blood
+                                'Cause there's still blood
 
-                In your hair
+                                  In your hair
   
-                  Got the bruise
+                                    Got the bruise
   
-                    Of the year
+                                      Of the year
 
-                      But it's something about her
+                                        But it's something about her
 
-                        Long shady eyes
+                                          Long shady eyes
 
-                          I'm all about her
+                                            I'm all about her
 
-                            Shade tonight
+                                              Shade tonight
                           
-                              I hate your tattoos
+                                                I hate your tattoos
 
-                                You have weak wrists
+                                                  You have weak wrists
 
-                                  But I'll keep you
+                                                    But I'll keep you
 
-                                    'Cause it's something about her
+                                                      'Cause it's something about her
 
-                                      Long shady eyes
+                                                        Long shady eyes
 
-                                        I'm all about her 
+                                                          I'm all about her 
 
-                                          Shade tonight
+                                                            Shade tonight
 
-                                            Well it's too bad
+                                                              Well it's too bad
 
-                                              It's too bad
+                                                                It's too bad
 
-                                                It's too bad
+                                                                  It's too bad
 
-                                                  You're married, to me
+                                                                    You're married, to me
 
 
 
