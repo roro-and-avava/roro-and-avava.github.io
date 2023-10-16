@@ -11,51 +11,51 @@ Our love grows stronger with each passing day. You are my girlfriend, best frien
 
 
 
-I feel soon
+      I feel soon
 
-I will sink
+        I will sink
 
-Into you
+          Into you
 
-What do you think?
+            What do you think?
 
-'Cause there's still blood
+              'Cause there's still blood
 
-In your hair
+                In your hair
+  
+                  Got the bruise
+  
+                    Of the year
 
-Got the bruise
+                      But it's something about her
 
-Of the year
+                        Long shady eyes
 
-But it's something about her
+                          I'm all about her
 
-Long shady eyes
+                            Shade tonight
+                          
+                              I hate your tattoos
 
-I'm all about her
+                                You have weak wrists
 
-Shade tonight
+                                  But I'll keep you
 
-I hate your tattoos
+                                    'Cause it's something about her
 
-You have weak wrists
+                                      Long shady eyes
 
-But I'll keep you
+                                        I'm all about her 
 
-'Cause it's something about her
+                                          Shade tonight
 
-Long shady eyes
+                                            Well it's too bad
 
-I'm all about her
+                                              It's too bad
 
-Shade tonight
+                                                It's too bad
 
-Well it's too bad
-
-It's too bad
-
-It's too bad
-
-You're married, to me
+                                                  You're married, to me
 
 
 
