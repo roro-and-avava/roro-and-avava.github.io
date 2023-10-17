@@ -67,10 +67,14 @@ Our love grows stronger with each passing day. You are my girlfriend, best frien
 Me and you. I will always be here with you no matter what, and I promise to love and care for you for eternity, my love. I love you so much.
 
 I'm yours.
+
 Now,
+
 tomorrow,
-forever
+
+forever.
 
 There will never be a day when
+
 I dont love you more than life itself
 
