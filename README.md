@@ -74,7 +74,4 @@ tomorrow,
 
 forever.
 
-There will never be a day when
-
-I dont love you more than life itself
-
+There will never be a day when I don't love you more than life itself
