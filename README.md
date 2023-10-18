@@ -4,7 +4,7 @@
 
 I love you so much, Ava, and you mean everything to me. Happy Birthday to the most perfect person, and I am forever grateful to be with you. I want you to know how much you mean to me on this special day. Our love has brought boundless joy and happiness into my life, and I love every moment we have shared. You have a light that brightens my darkest days.
 
-A voice and laugh that warms my heart and a love that completes me. As we celebrate this occasion, I want to remind you of all the incredible qualities that make you perfect. Your kindness, compassion, humour, personality, loyalty and grace inspire me to be the best person I could possibly be. On your birthday, I wish all your dreams come true, and that our future is filled with success and happiness. 
+A voice and laugh that warms my heart and a love that completes me. As we celebrate this occasion, I want to remind you of all the incredible qualities that make you perfect. Your kindness, compassion, humour, personality, loyalty and grace inspire me to be the best person I could be. On your birthday, I wish all your dreams come true, and that our future is filled with success and happiness. 
 
 Our love grows stronger with each passing day. You are my girlfriend, best friend, soulmate and greatest blessing. I cherish all our moments together and cannot wait for the many more ahead. So, my love, I hope you enjoy yourself on this particular day, and I wish the very best for my princess. I love you, Ava.
 
@@ -218,3 +218,13 @@ There will never be a day when I don't love you more than life itself.
 131. You have a way of challenging me to think differently, which I genuinely appreciate.
 132. Our journeys together are always adventurous, and you make every trip memorable, Ava.
 133. Your resilience in the face of adversity inspires us all, Ava.
+134. You are my perfect princess.
+135. You are the best girl ever.
+136. You are so sweet.
+137. You are so straightforward.
+138. You are so incredible.
+139. I love how funny you are.
+140. I love how kind and supportive you are.
+141. I love it when we call or talk.
+142. You love me.
+143. I love you.
