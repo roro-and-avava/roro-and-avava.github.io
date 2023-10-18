@@ -1,7 +1,7 @@
 # Happy Birthday Ava!
 ![IMG_3178 3](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/2b9a23bf-d530-4015-b1c9-8d42f14c7f57)
 
-o 
+
 I love you so much, Ava, and you mean everything to me. Happy Birthday to the most perfect person, and I am forever grateful to be with you. I want you to know how much you mean to me on this special day. Our love has brought boundless joy and happiness into my life, and I love every moment we have shared. You have a light that brightens my darkest days.
 
 A voice and laugh that warms my heart and a love that completes me. As we celebrate this occasion, I want to remind you of all the incredible qualities that make you perfect. Your kindness, compassion, humour, personality, loyalty and grace inspire me to be the best person I could possibly be. On your birthday, I wish all your dreams come true, and that our future is filled with success and happiness. 
@@ -74,4 +74,14 @@ tomorrow,
 
 forever.
 
-There will never be a day when I don't love you more than life itself
+There will never be a day when I don't love you more than life itself.
+
+## Why I love you Ava
+
+1. I love you for the way you make me feel when I am with you.
+2. You make me laugh.
+3. You are a great listener.
+4. I admire your strength.
+5. I love how compassionate you are.
+6. You are my source of comfort during tough times.
+7. You motivate me to a better person
