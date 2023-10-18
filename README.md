@@ -146,7 +146,7 @@ There will never be a day when I don't love you more than life itself.
 59. I love how you make progress every day.
 60. I love how you look out for me.
 61. You make me feel loved.
-62. I love how you’re my forever best friend and soul mate.
+62. You’re my forever best friend and soul mate.
 63. You make me feel like I’m the only person in the world.
 64. You are the best thing that ever happened to me.
 65. I think about you nonstop.
@@ -185,3 +185,36 @@ There will never be a day when I don't love you more than life itself.
 98. You are the best.
 99. I love that you love me.
 100. I love that I love you.
+101. Your love is unwavering.
+102. You are mine and only mine.
+103. I think of you all the time.
+104. Ava, you make me smile in ways no one else can.
+105. Your unwavering support and belief in me are my greatest strength, Ava.
+106. I love how I can be completely myself around you, and you accept me for who I am.
+107. Your hugs, Ava, have this magical way of making everything feel better.
+108. The time we spend together, an adventure or a quiet evening, is always my favourite with you.
+109. Your kindness, Ava, knows no bounds.
+110. Your intelligence and wit always impress me.
+111. I'm in awe of your strength and your empathetic nature, Ava.
+112. Your quirks and uniqueness make you the incredible person you are, Ava.
+113. You motivate me daily to be my best version, Ava.
+114. You're my confidante, and I trust you with my deepest thoughts and secrets.
+115. We share so many interests; every moment spent pursuing them with you is unique, Ava.
+116. Your smile is my favourite sight, brightening even my darkest days.
+117. Your patience is a virtue that I appreciate more than words can express, Ava.
+118. Your heart is so big and caring, and I'm grateful for the love you give me, Ava.
+119. You're my partner in all life's adventures, Ava.
+120. I love how you understand me, even when I struggle to explain myself, Ava.
+121. Your style and fashion sense are always so admirable.
+122. Your strength in the face of challenges continually inspires me, Ava.
+123. You're the person I want to share my achievements and successes with, Ava.
+124. Your endless energy and enthusiasm are infectious.
+125. You always make me feel appreciated and loved, Ava.
+126. Your wisdom and insights help me make better decisions, and I'm grateful for that, Ava.
+127. I'm proud to have you as my partner, Ava, and I can't wait to see where our future leads us.
+128. Your touch is like magic, calming and comforting me when I need it most, Ava.
+129. I could listen to you talk about your passions all day, Ava, and I love the sparkle in your eyes when you do.
+130. Your encouragement and support are invaluable to me, Ava.
+131. You have a way of challenging me to think differently, which I genuinely appreciate.
+132. Our journeys together are always adventurous, and you make every trip memorable, Ava.
+133. Your resilience in the face of adversity inspires us all, Ava.
