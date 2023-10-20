@@ -251,5 +251,3 @@ There will never be a day when I don't love you more than life itself.
 
 
 ![IMG_3365](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/c77c7d50-0cb5-4e3d-9e31-9d297916374d)
-
-https://youtu.be/3dMF1RrcZm0?si=xgWxEtvQY8R6eZvz
