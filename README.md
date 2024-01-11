@@ -249,3 +249,5 @@ There will never be a day when I don't love you more than life itself.
 ![IMG_3365](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/c77c7d50-0cb5-4e3d-9e31-9d297916374d)
 
 You're my shining light. Ava my beautiful princess if you ever think that you are not good enough, just remember this is how you make me feel. You're my everything
+
+![00040070-E54B-4A11-BD60-7890950F5E5D](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/986dde70-e27c-4882-ac9b-7e0d3db03822)
