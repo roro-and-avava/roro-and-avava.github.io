@@ -253,3 +253,5 @@ You're my shining light. Ava my beautiful princess if you ever think that you ar
 ![00040070-E54B-4A11-BD60-7890950F5E5D](https://github.com/roro-and-avava/roro-and-avava.github.io/assets/148076466/986dde70-e27c-4882-ac9b-7e0d3db03822)
 
 I love you with all my heart my perfect angel. You are my favourite person ever. I'll always be here for you my princess. My pretty little girl.
+
+I love you Ava. Me and you forever. We're locked in for life I promise you.
